@@ -24,7 +24,7 @@ Sou um profissional apaixonado por tecnologia e engenharia. Atualmente trabalho 
 ## 📫 Vamos nos conectar?
 
 - [LinkedIn](https://www.linkedin.com/in/guilherme-victor-da-silva-prado-735230174)
-- Email: guilhermevictor.ads@gmail.com *(ou outro que prefira compartilhar)*
+- Email: guilhermevictorprado@hotmail.com
 
 ---
 
